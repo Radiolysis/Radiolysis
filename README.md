@@ -19,7 +19,7 @@ I'm into MANYYY more fandoms, but these are the ones I'll tend to yap about the 
 I do ask if you are under the age of 15 to try limiting interaction with me. Cuddling or hiding behind me + brief interaction is still okay! But I don't feel comfortable personally befriending anyone below that age.
 - I usually tend to crown people I think are cool! I have horrible social anxiety when it comes to interacting with people first, but if you continue to whisper me after the crown, I might try to fall into a conversation with you if theres an opening for one! 
 
-Taking some inspo from my skins is alright! Please don't copy my skins entirely or colorpick them, though! I've had 5 of my skins stolen, and while I'm glad people enjoy them enough to consider copying them at all, its more of a demotivator than anythting to me. Again, inspo is completely okay! Just don't take everything!
+Taking some inspo from my skins is alright! Please don't copy my skins entirely or colorpick them, though! I've had 5 of my skins stolen, and while I'm glad people enjoy them enough to consider copying them at all, its more of a demotivator than anything to me. Again, inspo is completely okay! Just don't take everything!
 - I'm fine with random friend requests if we've had at least a brief interaction before, or if you just want to friend me while cuddling/hiding! Chances are I'll likely accept!
 
 📱🍊
