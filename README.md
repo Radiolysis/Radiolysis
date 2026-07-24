@@ -22,6 +22,8 @@ I do ask if you are under the age of 15 to try limiting interaction with me. Cud
 Taking some inspo from my skins is alright! Please don't copy my skins entirely or colorpick them, though! I've had 5 of my skins stolen, and while I'm glad people enjoy them enough to consider copying them at all, its more of a demotivator than anything to me. Again, inspo is completely okay! Just don't take everything!
 - I'm fine with random friend requests if we've had at least a brief interaction before, or if you just want to friend me while cuddling/hiding! Chances are I'll likely accept!
 
+If my status is on do not disturb, it usually means I'm probably not in the greatest mood. C+H is still welcomed and very encouraged, though! Sitting with someone helps me to relax. I just might not be the most talkative.
+
 📱🍊
 
 My strawpage! (will be updating eventually...) https://radiolysis.straw.page/
