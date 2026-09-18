@@ -24,6 +24,8 @@ Taking some inspo from my skins is alright! Please don't copy my skins entirely 
 
 If my status is on do not disturb, it usually means I'm probably not in the greatest mood. C+H is still welcomed and very encouraged, though! Sitting with someone helps me to relax. I just might not be the most talkative.
 
+!! IF YOU ARE MAKING NSFW COMMENTS OR JOKES ON THE SAFE SERVER, YOU WILL BE **PERMANENTLY HIDDEN,** <ins>NO EXCEPTIONS.</ins> There are children on this server and its genuinely so vile that some people think it is alright to expose kids to that type of material because, "well other people on the server do it, so it's okay!" Grow the fuck up and either take that to whispers or 18+ or don't say anything at all. 
+
 📱🍊
 
 My strawpage! (will be updating eventually...) https://radiolysis.straw.page/
