@@ -1,5 +1,5 @@
 ## JUDE OR RADIO 🦝
-- He / They , 19 yrs old
+- He / They , 20 yrs old
 
 ![test](https://media1.tenor.com/m/vhdtyE0sPekAAAAd/inanimate-insanity-ii.gif)
 
